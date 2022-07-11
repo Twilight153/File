@@ -1,1 +1,35 @@
 # File
+readme for details
+Storing food the wrong way means it can spoil more quickly-and eating it might literally make you sick (and no one wants food poisoning). If you were to open your refrigerator right now, would you be guilty of putting some food in the wrong place? Probably. But don't worry, we can help. It turns out, all those drawers, nooks and specialty shelves really do matter, and they can make a big difference in keeping your food safe and extending the life of your groceries. Storing your food in the right place and keeping your fridge organized means you'll spend less time digging around a messy fridge and get more bang for your grocery buck. If you keep your eggs in that cute spot on the fridge door or shove your grocery haul anywhere you can find space, keep reading for an easy organization strategy that'll keep your food fresher longer.
+
+Don't Miss: 7-Day Budget Meal Plan and Shopping List
+
+1. Fill the door with condiments-not eggs.
+A Consumer Reports study found that the refrigerator door is the warmest part of your fridge by a few degrees. (Think about it: How often do you pop the door open for a nibble here and there?) Milk and eggs require colder temperatures, so resist the urge to store them here-even if there is a perfectly shaped compartment for each one. Instead, load up the door with items that can handle warmer temps like condiments, salad dressings and butter.
+
+2. Raw meat belongs on the bottom.
+The most valuable real estate in your fridge-i.e., the coldest shelf-should be reserved for foods that spoil the easiest, according to the University of Illinois Extension. Save this area for raw meat, poultry and seafood. Bonus: Keeping those packages here keeps the occasional leak from dripping down and contaminating other areas of the fridge. (To avoid extra cleanup, thaw raw meat on a plate.)
+
+3. Know that coldest isn't best.
+Just because you can set your refrigerator to 25 degrees doesn't mean you should. According to the FDA, 40 degrees is the optimal fridge temperature. It's warm enough to keep your food from freezing and cool enough to prevent bacteria growth. You also want plenty of room for all that cold air to flow, so avoid packing food too tightly on the shelves.
+
+4. Leave some foods out.
+To fridge or not to fridge? The answer is no for a handful of foods. For example, bananas turn brown and mushy, honey crystallizes, and potatoes and tomatoes take a texture hit. Learn the best way to store all your fruits and vegetables, including what goes in the fridge.
+
+5. Save the middle shelf for dairy.
+A Purdue University study found that temperatures don't fluctuate as much here as they do on the top shelf. This makes the middle an ideal place for foods that go bad easily like eggs, cream, yogurt and milk. The second shelf is also a prime spot for leftovers that have already been cooked. Just make sure they're stored in shallow containers (rather than a giant container) which not only saves space, but helps keep the food cold.
+
+6. First in, first out.
+One of the most important rules you can follow when storing your food is to make you obey FIFO, first in, first out. That means apples you bought on Tuesday should get buried under apples from Sunday so the older ones get grabbed first. It's a rule followed in food service kitchens and grocery stores to make sure that food that's not as fresh gets used up first. And it's much easier to apply this at home if you stock the newer food behind the older food when you bring it home.
+
+7. Put prepared foods on the top shelf.
+Heat rises, so it makes sense that this is the warmest area of your fridge's main compartment. "I store items here that need to be kept cool but not necessarily held at a specific temperature," says Lauren Manaker, M.S., R.D., a South Carolina-based registered dietitian. Reserve this space for packaged goods with preservatives that keep them from going bad quickly. Think: spreads, jarred sauces, nut butters, juice and water.
+
+8. Use the high-humidity drawer for vegetables.
+The drawers toward the bottom of your fridge are sealed by gaskets at the top to create a moisture-controlled zone. Often, you can set the humidity level. A high-humidity drawer is the best spot for leafy greens, fresh herbs, broccoli, carrots and other veggies that can easily dry out and wilt. But if you notice too much moisture building up, it's OK to leave the drawer cracked open just a little bit, or set the humidity level lower.
+
+9. Fruits go in the low-humidity drawer.
+Setting a drawer to low-humidity opens vents that let air circulate more freely among the contents and keeps moisture down. Use it to store fruits that don't need a lot of moisture to stay fresh such as apples, oranges, grapes and berries. The extra airflow also keeps fruits from ripening too quickly. Ethylene, a hormone given off by produce that can ripen surrounding fruits and veggies, won't build up in this breathable drawer.
+
+10. Use the deli drawer for cooked meat and cheese.
+Despite the preservatives, cured meats and sliced cheeses can still go bad after a few days, according to the USDA. The deli drawer is set up to receive additional cold air flow to keep foods very cold without freezing. Separating these foods from others also prevents cross-contamination in case spoilage occurs.
